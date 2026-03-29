@@ -12,5 +12,7 @@
 
 
 
+\## Mary of Teck (1867–1953)
 
+\- matka George VI
 
