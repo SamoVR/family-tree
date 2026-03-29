@@ -10,3 +10,9 @@
 
 \- matka Queen Elizabeth II
 
+
+
+\## Claude Bowes-Lyon (1855–1944)
+
+\- otec Elizabeth Bowes-Lyon
+
