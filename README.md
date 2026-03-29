@@ -12,5 +12,7 @@
 
 
 
+\## George V (1865–1936)
 
+\- otec George VI
 
